@@ -3,7 +3,7 @@
 *A map and guide to historic Northern, Michigan Town Alden*
 
 
-Here is what you can gain from thsi map:
+Here is what you can gain from this map:
 
 * Overview of the Downtown Street
 * Store Locations and Types
