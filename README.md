@@ -1,5 +1,4 @@
-# Alden, Michigan Map and Guide
-*Map and guide of historic Northern Michigan town, Alden*
+
 
 Here is what you can gain from thsi map:
 
